@@ -1,2 +1,3 @@
 # symphonics
-A comprehensive calculus toward the sublimation of theory of knowledge via musical intuitionism. Literally and physically.
+https://fs.blog/chestertons-fence/
+https://homepages.math.uic.edu/~kauffman/Laws.pdf
